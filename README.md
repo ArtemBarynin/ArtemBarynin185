@@ -1,4 +1,7 @@
 # ArtemBarynin185
+https://docs.google.com/presentation/d/1dJvan9CLZMceRECjAOUwTuOSeVG5x5giPiLobkPFtDo/edit#slide=id.g10ad5446d1e_0_4
+слайд 40
+
 https://nationalteam.worldskills.ru/skills/programmnye-resheniya-dlya-biznesa/
 Глоссарий
 Для успешного освоения материала рекомендуем вам изучить следующие понятия:
